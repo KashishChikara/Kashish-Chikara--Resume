@@ -1,1 +1,0 @@
-# Kashish-Chikara-Resume
